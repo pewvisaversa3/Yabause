@@ -214,4 +214,4 @@ Yabause is offered as a complete free version with all features and updates incl
 Ready to dive back into the world of Sega Saturn? **Download Yabause now and start your gaming adventure!**
 
 ---
-**Last updated:** 2026-10-02 21:09:42 UTC
+**Last updated:** 2026-10-03 00:56:09 UTC
